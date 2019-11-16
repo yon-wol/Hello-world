@@ -1,3 +1,3 @@
 # Hello-world
 Team work
-i am for me
+work in together is power
